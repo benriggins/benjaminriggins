@@ -67,6 +67,7 @@
 - Give yourself a challenge: read an entire book in a certain amount of time, or a certain number of times in a certain amount of time
 - Reread the New Testament over and over — find new, fun challenges to keep filling yourself with the Word
 - Group Bible study format: pray together, each read the passage out loud, ask "what stands out," "what is God teaching here," "how does this apply now" — then study deeper (patterns, commands/promises, historical context, character revealed, picture it realistically) — then each write how to live it out, read it out loud, pray it over yourselves (full format: [Bible Study Quick Notes Format](2026-08-05-bible-study-format.md))
+- Know what you need, don't know where to find it? Ecclesiastes for something sobering, Proverbs for wisdom/work/knowledge, Job for covenant (careful — sobering), Psalms for worship/journaling/emotion, early Genesis for the enemy's tactics, Joseph for stewardship and wealth transfer, Pharaoh for humility, Moses for leadership, the Gospels for Jesus, Elijah/Elisha for what a man can do with God (full guide: [Where to Go in Scripture](2026-08-05-where-to-go-in-scripture.md))
 
 ## Journaling
 - Every morning: "Good morning, Father" — just start writing. The more you write, the better you feel
