@@ -27,6 +27,7 @@
 - Fasting doesn't earn anything — it moves *you*, not Him
 
 ## Worship
+- Don't know what to worship? Go to Psalms and sing along, sing new songs straight from the lyrics — write your own lyrics like Psalms and let it inspire you (full key: [Worship from Scripture](2026-08-05-worship-from-scripture.md))
 - Just tell Him "I love you, hallelujah" and soak in it
 - Turn on an instrumental and worship, no words needed
 - Turn on your favorite worship songs and sing along — see where it takes you
