@@ -97,6 +97,8 @@
 - Ask Him to help you be joyful — pray for joy
 
 ## Identity & Faith
+- Remind yourself of His victory in the blood, that He is the slain Lamb — ask Him to show you what the victory actually is, and what your purpose is in light of it
+- Seek first the Kingdom daily (Matthew 6:33): ask Him to show you every area where you're worrying, scared, or acting like He's not your Father, and to help you act like you truly are His son or daughter — full prayer: [Seek First the Kingdom](2026-08-05-seek-first-the-kingdom-prayer.md)
 - Ask Him to reveal your identity — where you lack knowledge of your inheritance, and where you lack acting on it
 - Ask Him to reveal how to gain more faith (not "pray for faith" — Scripture never says to pray for it; ask Him to reveal it instead)
 - You've already been delivered and already been healed — you don't have to ask and pray for what's already yours
