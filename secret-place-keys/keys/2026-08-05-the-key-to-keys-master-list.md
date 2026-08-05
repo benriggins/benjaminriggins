@@ -12,6 +12,7 @@
 - If you only have a little time, that's fine — give the dead time anyway, without watching the clock
 
 ## Prayer & Intercession
+- Don't know what to pray? Flip open the Bible, find a verse, turn it directly into a prayer — or highlight every prayer verse in a specific color so you can find one fast when you're stuck (full key: [Pray the Scriptures](2026-08-05-pray-the-scriptures.md))
 - Pray in tongues all the time — the master key to Christianity itself (see [Pray in Tongues All the Time](2026-08-05-pray-in-tongues-all-the-time.md) and the full teaching behind it)
 - Pray in tongues, intercede for people
 - 10 people, 10 minutes a day (covers intercession for a lot of people over time)
