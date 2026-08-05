@@ -1,5 +1,7 @@
 # The Key to Keys — A Master List for the Secret Place
 
+*This is the running master list. Every new key gets added here. Ask for "the key of keys" anytime to get the full current list to copy-paste.*
+
 *This is what this whole repo is for. Write down anything you've ever heard anybody do in the Secret Place — that just might work for you, sometimes, somehow, somewhat. When you don't know what to do, come to this list, pick one, try it. If it doesn't work, try the next one. It's all about breaking through the flesh barrier — not forcing anything. Your Father is close. The Holy Spirit is close. Jesus is alive.*
 
 ## Prayer & Intercession
@@ -32,6 +34,15 @@
 ## Capturing Moments
 - Voice memo moments at church or in worship where it felt holy — save it, name it, keep it
 
+## Sacraments & Consecrated Spaces
+- Take communion — set a time every day to take communion for a certain amount of time
+- Use anointing oil — anoint things, saying "the Holy Spirit will fill this place, the Holy Spirit will be upon this place"
+- Invite His presence into different areas — your home, your room, your work, wherever you are
+
+## Humility
+- Get on your knees, fall on your face, humble yourself before Him
+- Ask Him to reveal how to humble yourself even more
+
 ## Listening & Prophecy
 - Ask Him to speak to you, then write down everything you think He says
 - Ask, "Father, do You want me to prophesy over anyone? If so, what, and to who?"
@@ -41,6 +52,10 @@
 - Keep a list of trusted preachers on your phone — when you want to study a topic, look up their teaching on it
 - Save teachings into a notebook (e.g. NotebookLM, Gemini) and ask it questions — helps avoid bad theology, though Hebrew/Greek word study is its own separate discipline
 - Pick a topic across the whole Bible and study it end to end, writing down everything you see (e.g. studying money, wealth, business, and entrepreneurship in Scripture)
+- Pick a person in the Bible and study them — what went wrong, what went right
+- Find your favorite books of the Old and New Testament and just keep rereading them, over and over
+- Give yourself a challenge: read an entire book in a certain amount of time, or a certain number of times in a certain amount of time
+- Reread the New Testament over and over — find new, fun challenges to keep filling yourself with the Word
 
 ## Journaling
 - Every morning: "Good morning, Father" — just start writing. The more you write, the better you feel
