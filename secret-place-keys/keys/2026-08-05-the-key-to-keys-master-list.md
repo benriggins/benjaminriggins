@@ -4,7 +4,15 @@
 
 *This is what this whole repo is for. Write down anything you've ever heard anybody do in the Secret Place — that just might work for you, sometimes, somehow, somewhat. When you don't know what to do, come to this list, pick one, try it. If it doesn't work, try the next one. It's all about breaking through the flesh barrier — not forcing anything. Your Father is close. The Holy Spirit is close. Jesus is alive.*
 
+## Posture & Approach
+*(see [Practical Keys to the Secret Place](2026-08-05-practical-keys-to-the-secret-place.md), [Let Him Flow](2026-08-05-let-him-flow.md))*
+- Approach from sonship, not slavery — you're not a beggar at the gate, you're a joint-heir in the bosom of the Father. Walk in, call Him "Abba Father," commune on that basis, not on your recent behavior
+- Worship independent of feelings — the "lump of coal" principle: your job is to worship, His job is to receive you. Feelings are flesh; keep worshiping through the dryness until it breaks
+- Don't measure the time or ask "is this natural, is this real worship" — just start (sing, open the Word) and yield to wherever He takes it. The desire to stay grows the more you follow, not the more you force
+- If you only have a little time, that's fine — give the dead time anyway, without watching the clock
+
 ## Prayer & Intercession
+- Pray in tongues all the time — the master key to Christianity itself (see [Pray in Tongues All the Time](2026-08-05-pray-in-tongues-all-the-time.md) and the full teaching behind it)
 - Pray in tongues, intercede for people
 - 10 people, 10 minutes a day (covers intercession for a lot of people over time)
 - Covenant prayers — e.g. staying up 3am–6am for 7 full days
@@ -56,6 +64,7 @@
 - Find your favorite books of the Old and New Testament and just keep rereading them, over and over
 - Give yourself a challenge: read an entire book in a certain amount of time, or a certain number of times in a certain amount of time
 - Reread the New Testament over and over — find new, fun challenges to keep filling yourself with the Word
+- Group Bible study format: pray together, each read the passage out loud, ask "what stands out," "what is God teaching here," "how does this apply now" — then study deeper (patterns, commands/promises, historical context, character revealed, picture it realistically) — then each write how to live it out, read it out loud, pray it over yourselves (full format: [Bible Study Quick Notes Format](2026-08-05-bible-study-format.md))
 
 ## Journaling
 - Every morning: "Good morning, Father" — just start writing. The more you write, the better you feel
@@ -97,6 +106,7 @@
 
 ## Relationships
 - Ask for relationships: "Father, give me wisdom to discern the right relationship with the right person"
+- Ask Him directly what He thinks of you, role by role — as a dad, a brother, a husband, a son, a businessman, a steward, a human — don't assume the answer, let Him actually tell you (full version: [What Do You Think of Me?](2026-08-05-what-do-you-think-of-me.md))
 
 ## Declaration & Confession
 - Declare in the Secret Place: "I declare in the name of Jesus that You will provide for my family — You promised, and I hold You to Your word"
