@@ -114,6 +114,7 @@
 - Ask Him directly what He thinks of you, role by role — as a dad, a brother, a husband, a son, a businessman, a steward, a human — don't assume the answer, let Him actually tell you (full version: [What Do You Think of Me?](2026-08-05-what-do-you-think-of-me.md))
 
 ## Declaration & Confession
+- Declare God as who He is — that is how He manifests the most: Healer, He will heal; Provider, He will provide; Savior, Deliverer, Powerful, etc. — declare the name that matches what you need (full key: [Declare God as Who He Is](2026-08-05-declare-god-as-who-he-is.md))
 - Declare in the Secret Place: "I declare in the name of Jesus that You will provide for my family — You promised, and I hold You to Your word"
 - Stay in the place called "done" — keep confessing the Word ("The Bible says I am healed," repeated, over and over)
 - Todd White prayed for 900 people over three months at grocery stores — every day renewing his mind with "They will lay hands on the sick and they shall recover." The first person got healed, and it rippled from there. Faith built through confession and renewal of the Word.
