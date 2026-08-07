@@ -137,6 +137,7 @@
 - Ask Him to reveal all the different ways He wants to speak to you, and to open your heart, mind, soul, body, and ears — "circumcise my ears so I don't filter out what I don't want to hear, so I only hear what You're speaking"
 
 ## Spiritual Warfare / Declarations Over Family
+- Pray against division — cover your household, friends, and relationships in the blood of Jesus so only the Holy Spirit's thoughts about you reign in people's hearts and minds, declaring favor instead of accusation, and refusing to accept negative words spoken over you (full prayer: [Praying Against Division](2026-08-05-praying-against-division.md))
 - Rebuke the devil, declare he has already lost and has no dominion over you
 - Declare your family fully healed of sickness and disease
 - Declare them saved, declare them full of faith
