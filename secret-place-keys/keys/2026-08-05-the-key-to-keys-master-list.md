@@ -54,6 +54,7 @@
 - Ask Him to reveal how to humble yourself even more
 
 ## Listening & Prophecy
+- Write down the first thing you hear even if you doubt it's really Him — that's what opens the door to the rest of what He wants to say (full key: [Write Down the First Thing, Even If You Doubt It](2026-08-05-write-down-the-first-thing-even-if-you-doubt-it.md))
 - Ask Him to speak to you, then write down everything you think He says
 - Ask, "Father, do You want me to prophesy over anyone? If so, what, and to who?"
 
